@@ -1,2 +1,1 @@
-# KDA
- 
+Thiên lý ơi
